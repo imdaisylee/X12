@@ -11,3 +11,7 @@
 
 
 helloo this is Irene Jo I love eating instant noodles and I want a lip piercing
+
+* i second this
+
+* wait no i already have some never mind
